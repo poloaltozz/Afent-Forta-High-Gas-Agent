@@ -1,3 +1,5 @@
+Please add me as a Agent Developer [Published] on Discord, my username is Lunafox#3353 
+
 # High Gas Agent
 
 ## Description
